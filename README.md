@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Themakercat or MR cat
+- 👀 i like play roblox
+- 🌱 i like play minecraft
